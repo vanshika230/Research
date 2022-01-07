@@ -40,3 +40,5 @@
 
 [https://www.quora.com/What-are-the-things-I-should-keep-in-mind-when-writing-to-professors-for-short-term-internships-projects/answer/Shivam-Sahu-2](https://www.quora.com/What-are-the-things-I-should-keep-in-mind-when-writing-to-professors-for-short-term-internships-projects/answer/Shivam-Sahu-2)
  [https://mystudentvoices.com/a-comprehensive-guide-to-academic-internships-abroad-edfcb6b28c28](https://mystudentvoices.com/a-comprehensive-guide-to-academic-internships-abroad-edfcb6b28c28)
+
+https://github.com/vvignesh17/List-of-all-Research-Internship-Program-for-IIT-and-NITs
