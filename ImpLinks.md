@@ -42,3 +42,27 @@
  [https://mystudentvoices.com/a-comprehensive-guide-to-academic-internships-abroad-edfcb6b28c28](https://mystudentvoices.com/a-comprehensive-guide-to-academic-internships-abroad-edfcb6b28c28)
 
 https://github.com/vvignesh17/List-of-all-Research-Internship-Program-for-IIT-and-NITs
+
+https://www.linkedin.com/in/vkrahul/
+
+https://www.linkedin.com/in/shreyaverma7/
+
+https://www.linkedin.com/in/mitali-bante/
+
+https://www.linkedin.com/in/smarth-gupta/
+
+https://www.linkedin.com/in/akshaypakhle10/
+
+https://www.linkedin.com/in/manas-dresswala/
+
+https://www.linkedin.com/in/smarth-gupta/
+
+https://www.linkedin.com/in/gunkirat-kaur/
+
+https://www.linkedin.com/in/vedant-kumar-2109/
+
+https://www.linkedin.com/in/divyanshusharma17/
+
+https://www.linkedin.com/in/himangimittal/
+
+https://www.linkedin.com/in/rkjenamani/
