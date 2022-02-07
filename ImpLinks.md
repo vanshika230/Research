@@ -110,3 +110,13 @@ https://www.linkedin.com/in/dhruvi-modi-093a93155/
 https://www.linkedin.com/in/swastishreyamishra/
 
 https://www.linkedin.com/in/swastishreyamishra/
+
+https://www.linkedin.com/in/jayshildave/
+
+https://www.linkedin.com/in/arpit-bahety/
+
+https://www.linkedin.com/in/akshatagarwal1265/
+
+https://www.linkedin.com/in/adhya-rajesh/
+
+https://www.linkedin.com/in/dashansh/
