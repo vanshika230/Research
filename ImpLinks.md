@@ -43,6 +43,10 @@
 
 https://github.com/vvignesh17/List-of-all-Research-Internship-Program-for-IIT-and-NITs
 
+https://github.com/himahuja/Research-Internships-for-Undergraduates
+
+https://github.com/Kavyapriyakp/Research-Internships-for-UG-Students
+
 https://www.linkedin.com/in/vkrahul/
 
 https://www.linkedin.com/in/shreyaverma7/
