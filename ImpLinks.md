@@ -126,3 +126,6 @@ https://www.linkedin.com/in/adhya-rajesh/
 https://www.linkedin.com/in/dashansh/
 
 https://www.linkedin.com/in/keertank189/
+
+https://www.linkedin.com/in/ranya-seth-34593018a/
+
